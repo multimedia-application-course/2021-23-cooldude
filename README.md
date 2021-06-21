@@ -7,3 +7,5 @@
 # 因为字幕及视频都是依据歌曲节奏，所以多了很多工作量，剪辑过程中多次调整时间轴
 # BGM：Varien - Future Funk
 #      Hawk Nelson _ Jon Steingard - Sold Out
+# 音频链接：https://pan.baidu.com/s/1gr4U5NaxbjNlCU_oigGqBQ 
+# 提取码：2333 
