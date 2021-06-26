@@ -10,3 +10,5 @@
 #      Hawk Nelson _ Jon Steingard - Sold Out
 # 音频等素材链接：https://pan.baidu.com/s/1rsDbqOvJ5jPCORjgl65KNA 
 # 提取码：2333 
+# 录屏素材：链接：https://pan.baidu.com/s/1lU7_bnGElAiq0awuJYHdgA 
+# 提取码：2333 
